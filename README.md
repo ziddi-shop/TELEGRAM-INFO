@@ -1,6 +1,6 @@
-# JACKING 
+# TELEGRAM INFO 
 
-IG ACCOUNT JACKING SCRIPT by  ziddi shop @ziddi-shop ....
+TELEGRAM INFO SCRIPT by  ziddi shop @ziddi-shop ....
 
 
 
